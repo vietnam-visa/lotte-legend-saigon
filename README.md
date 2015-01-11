@@ -1,0 +1,2 @@
+# lotte-legend-saigon
+Located in Saigon's scenic riverside area and within walking distance to major commercial addresses, <a href=http://www.hotels-in-vietnam.com/asia/vietnam/ho_chi_minh_saigon_hotels/legend_hotel_saigon.html>Lotte Legend Saigon Hotel</a> is the perfect place for conducting business. The meeting and banquet facilities are well equipped to cater to your every need. The hotel takes business and pleasure to heart, enjoy the best of Ho Chi Minh while being pampered with superb accommodation and excellent service.
